@@ -1,4 +1,4 @@
-# Latest Vietnix Coupon Codes for 2024 - Organized Summary of Vietnix Promotions
+# Latest Vietnix Coupon Codes for 2025 - Organized Summary of Vietnix Promotions
 
 ## Vietnix Introduction
 Vietnix, established in 2012, is a Vietnamese hosting provider known for its highly affordable VPS services. They specialize in KVM virtualization and offer a variety of VPS options, catering to both local and international clients. Their promotional offers typically include significant discounts for longer commitments.
